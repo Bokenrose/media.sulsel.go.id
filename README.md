@@ -1,1 +1,0 @@
-# media.sulsel.go.id
